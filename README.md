@@ -18,4 +18,4 @@ This journey isn’t about starting from zero but it's about refining, deepening
 # 🙌 Let's Connect!
 If you’re also participating in #60DaysOfLearning2025 or are passionate about AI/ML, then let's connect and grow together!
 - LinkedIn: (https://www.linkedin.com/in/ngima-d-lama-3ba425283/)
-- X: (https://x.com/neema9586583741?s=21)
+- X: (https://x.com/neema958?s=21)
